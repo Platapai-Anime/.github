@@ -4,4 +4,4 @@
 
 ------------
 
-*[https://platapaianime.me/](Platapai Anime)*
+*https://platapaianime.me/*
