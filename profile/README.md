@@ -5,3 +5,4 @@
 ------------
 
 *https://platapaianime.me/*
+*https://discord.gg/ypWFgGaej8*
